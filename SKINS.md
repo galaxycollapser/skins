@@ -12,5 +12,6 @@
 ![# - tekkito2 skin gameplay](img/3.jpg "# - tekkito2 skin gameplay")
 
 ---
-Created by: galaxycollapser
-I don't own this skins, only uploaded them to file hosting service with direct download and. I don't have any earning by uploading it.
+Created by: galaxycollapser\
+I don't own these skins, I only uploaded them to a file hosting service with direct download. I don't have any earnings from uploading it.
+
